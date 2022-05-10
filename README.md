@@ -1,1 +1,1 @@
-Image Gallery - Abita
+Image Gallery Abita
